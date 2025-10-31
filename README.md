@@ -1,1 +1,0 @@
-# Solucionfinanzasnequi.net
